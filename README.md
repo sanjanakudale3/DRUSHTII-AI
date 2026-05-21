@@ -1,5 +1,5 @@
-👁️ Drustii AI
-🛡️ Protecting Eyes, Posture & Focus — One Desktop at a Time
+👁️ Drustii AI - (You can try) : https://app-bobhxducetc1.appmedo.com
+🛡️ Protecting Eyes, Posture & Focus — One Desktop at a Time 
 
 Drustii AI is a privacy-first AI wellness and productivity ecosystem designed for students, developers, remote workers, and professionals who spend long hours in front of digital screens. 💻
 
